@@ -1,1 +1,1 @@
-Projeto em progresso, logo mais estará finalizado para o deleite de todos. Obrigado!
+Projeto em progresso, logo mais estará finalizado para todos. Obrigado!
